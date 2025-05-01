@@ -1,0 +1,2 @@
+# Relationship-of-One-s-Political-Party-and-Racial-Inequalities-in-the-Classroom
+ I aim to provide empirical evidence on how these independent concepts contribute to shaping societal views. The results of this study will show all the factors affect people's beliefs. Findings will be of interest to schools because they will help them learn to combat racial inequalities in the schools to provide the proper resources.
